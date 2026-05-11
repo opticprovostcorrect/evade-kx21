@@ -1,4 +1,4 @@
-
+Experience evade like never before with evade advanced Script, the #1 Script. Includes auto-collect and teleport for unbeatable performance.
 
 
 
